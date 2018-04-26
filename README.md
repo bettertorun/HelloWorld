@@ -1,3 +1,2 @@
 # HelloWorld
-to study 
-ok?
+good good study day day up
